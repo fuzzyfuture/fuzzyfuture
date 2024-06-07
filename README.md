@@ -1,1 +1,1 @@
-TODO: Write an intro
+i'm nate :D
